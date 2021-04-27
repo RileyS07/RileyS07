@@ -1,4 +1,4 @@
-Hi, I'm Riley, I'm a hobbiest programming working on the ROBLOX platform.
+Hi, I'm Riley.
 
 I'll add more to this in the future.
 
